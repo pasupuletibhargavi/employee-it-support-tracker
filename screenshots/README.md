@@ -1,1 +1,1 @@
-Project screenshots.
+Project screenshots
